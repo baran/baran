@@ -1,1 +1,1 @@
-![Image of Istanbul](istanbul-01.jpg)
+![Image of Istanbul](https://imgur.com/IIgMbYi)
