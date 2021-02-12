@@ -1,1 +1,1 @@
-![Image of Istanbul](https://i.picsum.photos/id/434/1900/620.jpg?hmac=xJcFPLdam7fDvL0Tz6qAhjnfm1zahxVG-39Gt4B1LZg)
+![Image of Istanbul](https://i.picsum.photos/id/1015/1900/600.jpg?hmac=kvDaTc_RwyKVDsqloTdpq4Q---t2GsnEFoOw-a_kxDk)
